@@ -1,85 +1,86 @@
-# Md Rezaul Karim  
-Auckland CBD, New Zealand  
+# Md Rezaul Karim
+
+**Auckland CBD, New Zealand**  
 📞 020 456 5156  
 ✉️ rezaul.karim.nsu@gmail.com  
 
 ---
 
-## Professional Summary
+## Profile
 
-Reliable and detail-oriented professional with over 10 years of experience in a high-standard international banking environment, now transitioning into hands-on maintenance and practical work. Known for strong problem-solving skills, attention to detail, and a disciplined work ethic. Highly motivated to learn practical maintenance skills and contribute to maintaining premium hospitality standards in a team-oriented environment.
+Reliable and detail-oriented professional with over 10 years of experience in a high-standards international banking environment (HSBC). Currently transitioning into hands-on, practical roles within hospitality and facilities maintenance. Known for strong work ethic, adaptability, and a willingness to learn new technical skills. Motivated to contribute to a premium, sustainability-focused environment such as The Hotel Britomart.
 
 ---
 
-## Key Skills
+## Core Skills
 
-- General Maintenance Support (entry-level)
-- Preventative Maintenance Assistance
-- Minor Repairs & Basic Troubleshooting
-- Painting & General Upkeep (learning and practice-based)
-- Strong Attention to Detail
-- Health & Safety Awareness
-- Time Management & Reliability
-- Customer Service Mindset
-- Team Collaboration
-- Adaptability & Willingness to Learn
+- Attention to detail & quality control  
+- Problem solving in fast-paced environments  
+- Preventative maintenance mindset  
+- Time management & reliability  
+- Team collaboration (multicultural teams)  
+- Customer service & stakeholder handling  
+- Health, safety, and compliance awareness  
+- Quick learner with strong adaptability  
 
 ---
 
 ## Professional Experience
 
 ### Banking Operations & Trade Finance Professional  
-**HSBC, Bangladesh**  
-*2014 – 2025*
+**HSBC** — Bangladesh  
+*2014 – 2024*
 
-- Maintained strict operational accuracy and compliance in a high-pressure environment  
-- Identified discrepancies and resolved issues efficiently under tight deadlines  
-- Coordinated with multiple teams to ensure smooth daily operations  
-- Demonstrated reliability, consistency, and accountability over long-term employment  
-- Developed strong documentation, reporting, and process-control discipline  
-- Applied structured problem-solving skills transferable to maintenance and operational roles  
+- Maintained strict operational and compliance standards in a highly regulated environment  
+- Identified errors, discrepancies, and operational risks with precision  
+- Coordinated across departments to resolve time-sensitive issues efficiently  
+- Managed multiple priorities under pressure while meeting deadlines  
+- Demonstrated consistent reliability and professionalism over a decade  
 
----
-
-## Community & Volunteering Experience
-
-**Community Volunteer – Auckland**  
-*Ongoing*
-
-- Actively involved in community-based initiatives and volunteer activities  
-- Demonstrates strong sense of responsibility, teamwork, and local engagement  
-- Comfortable working with people from diverse cultural backgrounds  
+*Transferable strengths developed:* accuracy, accountability, documentation discipline, and process improvement.
 
 ---
 
-## Education
+## Career Transition Focus
 
-**Master’s Degree – Climate Change & Development**  
-*Completed*
+Actively transitioning into **hands-on maintenance and facilities support work**, with strong interest in:
 
-**Bachelor’s Degree – Finance & Marketing**  
-*Completed*
+- Painting and surface maintenance  
+- Minor repairs and basic building upkeep  
+- Preventative maintenance tasks  
+- Supporting senior tradespeople  
+- Maintaining high presentation standards in hospitality settings  
 
----
-
-## Availability & Work Preferences
-
-- Available for **part-time work**
-- Flexible with **rotating shifts**, weekends, and public holidays  
-- Comfortable with physically active and hands-on work  
-- Eager to learn from experienced maintenance and trades professionals  
+Motivated to learn through on-the-job training and practical experience.
 
 ---
 
-## Personal Attributes
+## Volunteering & Community Involvement
 
-- Strong work ethic and punctuality  
-- Practical, safety-conscious approach to tasks  
-- Positive attitude and coachable mindset  
-- Takes pride in maintaining high standards  
+**Community Volunteer** — Auckland  
+- Actively involved in various local community initiatives  
+- Demonstrates commitment, teamwork, and service mindset  
+
+---
+
+## Availability & Work Ethic
+
+- Available for **part-time work**  
+- Flexible with **rotating shifts, weekends, and public holidays**  
+- Comfortable working independently or as part of a team  
+- Physically fit and willing to perform hands-on tasks  
+
+---
+
+## Personal Strengths
+
+- Strong sense of responsibility  
+- Pride in completing tasks to a high standard  
+- Respectful, punctual, and dependable  
+- Genuine interest in sustainability and quality environments  
 
 ---
 
 ## References
 
-Available upon request
+Available upon request.
